@@ -8,6 +8,6 @@ Hi there 👋 My name is Diba Shishegar
 - 👩‍💼 22-year-old girl
 - 🗣️ Fluent in English, Norwegian, and Farsi
 - 📝 Excellent in Norwegian and English writing, okay in Farsi writing
-Let's code for a better tomorrow 💻🌎
+- Let's code for a better tomorrow 💻🌎
 
 
