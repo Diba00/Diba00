@@ -1,4 +1,4 @@
-Hi there 
+Hi there 👋
 
 
 - 📚 Studying computer engineering at Oslo Metropolitan University
