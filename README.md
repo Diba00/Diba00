@@ -1,4 +1,4 @@
-Hi there 👋 My name is Diba Shishegar
+<header > Hi there 👋 My name is Diba Shishegar </header>
 
 
 - 📚 Studying computer engineering at Oslo Metropolitan University
