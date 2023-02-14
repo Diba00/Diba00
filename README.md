@@ -9,4 +9,6 @@
 - 📝 Excellent in Norwegian and English writing, okay in Farsi writing
 - Let's code for a better tomorrow 💻🌎
 
+![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+
 
