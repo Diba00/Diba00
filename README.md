@@ -9,9 +9,8 @@
 - 📝 Excellent in Norwegian and English writing, okay in Farsi writing
 
 
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
-
 ![Peter Griffin](https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif)
 
+![dhdh](https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif)
 
 
