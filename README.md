@@ -1,6 +1,4 @@
- <h1>💻 Tasks Summary</h1>
-<header > Hi there 👋 My name is Diba Shishegar </header>
-
+ <h1>💻 Hi there 👋 My name is Diba Shishegar/h1>
 
 - 📚 Studying computer engineering at Oslo Metropolitan University
 - 💻 Skilled in Python, Java, and JavaScript
