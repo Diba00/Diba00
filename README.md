@@ -11,6 +11,4 @@
 
 ![Peter Griffin](https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif)
 
-![dhdh](https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif)
-
 
