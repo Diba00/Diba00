@@ -11,6 +11,7 @@
 
 ![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
 
-https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif
+![Peter Griffin](https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif)
+
 
 
