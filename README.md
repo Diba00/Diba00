@@ -6,7 +6,7 @@
 - 🚀 Aiming to become a leading tech engineer, using my skills to solve real-world problems.
 - 🌟 Tutor at Oslo Metropolian University
 - 🗣️ Fluent in English, Norwegian, and Farsi
-- 📝 Excellent in Norwegian and English writing, okay in Farsi writing
+- 📝 Excellent in writing Norwegian and English , okay in writing Farsi 
 
 
 ![Peter Griffin](https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif)
