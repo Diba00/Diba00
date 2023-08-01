@@ -4,7 +4,7 @@
 - 💻 Skilled in Python, Java, and JavaScript
 - 🚧 Open for projects
 - 🚀 Aiming to become a leading tech engineer, using my skills to solve real-world problems.
-- 🌟 Tutor at Oslo Metropolian University
+- 🌟 Subject coordinator at Oslo Metropolian University for Orakel
 - 🗣️ Fluent in English, Norwegian, and Farsi
 - 📝 Excellent in writing Norwegian and English , okay in writing Farsi 
 
