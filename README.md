@@ -9,6 +9,6 @@
 - 📝 Excellent in writing Norwegian and English , okay in writing Farsi 
 
 
-*/![Peter Griffin](https://media.tenor.com/5ljPtnvutJ8AAAAC/peter-griffin-long-nails.gif)
+
 
 
